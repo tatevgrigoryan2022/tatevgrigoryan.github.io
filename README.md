@@ -1,2 +1,0 @@
-# tatevgrigoryan.github.io
-<!DESKTOP
